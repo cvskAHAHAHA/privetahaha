@@ -1,2 +1,0 @@
-# privetahaha
-privetparni
